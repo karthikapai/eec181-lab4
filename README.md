@@ -1,1 +1,0 @@
-# karthikapai.github.io
